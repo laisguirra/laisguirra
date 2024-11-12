@@ -1,3 +1,4 @@
+<img align="center" src="https://media.licdn.com/dms/image/v2/D4D16AQGL-zkoOmjfHw/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1714497278564?e=1736985600&v=beta&t=kjVcBGwzqF3ejsA7Cqswspc9bk5iXDD3HStzOFkmkdY">
 ## 💜 Olá, sou a Lais Guirra! 
 
 🔭 Business Intelligence Intern
